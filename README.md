@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PhamTCang
-- 👀 I’m interested in ...
+- 👀 I’m interested in NFT games
 - 🌱 I’m currently learning Java
 - 📫 How to reach me https://www.facebook.com/Kai07013003/
 
